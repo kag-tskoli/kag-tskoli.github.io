@@ -1,1 +1,0 @@
-# kag-tskoli.github.io
